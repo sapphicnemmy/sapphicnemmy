@@ -1,5 +1,6 @@
 ### hi.
 i don't know what i'm doing.
+^ this is a lie i know how to code i just meant with my life
 
 <!--
 **sapphicnemmy/sapphicnemmy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
