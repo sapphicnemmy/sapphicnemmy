@@ -1,6 +1,7 @@
 ### hi.
-i don't know what i'm doing.
-^ this is a lie i know how to code i just meant with my life
+i don't know what i'm doing.\
+^ this is a lie i know how to code i just meant with my life.\
+edit #3 i forgot that you have to use backslashes for new lines to work properly thanks github.
 
 <!--
 **sapphicnemmy/sapphicnemmy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
