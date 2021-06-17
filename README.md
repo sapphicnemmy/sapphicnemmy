@@ -1,21 +1,153 @@
 ### hi.
-i don't know what i'm doing.\
-^ this is a lie i know how to code i just meant with my life.\
-edit #3 i forgot that you have to use backslashes for new lines to work properly thanks github.
 
-[![sapphicnemmy's GitHub stats](https://github-readme-stats.vercel.app/api?username=sapphicnemmy)](https://github.com/anuraghazra/github-readme-stats) \
 
-<!--
-**sapphicnemmy/sapphicnemmy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+i like making private discord bots i guess
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Sometimes
+
+
+
+
+Maybe
+
+
+
+
+
+
+
+
+
+
+
+
+
+Possibly
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Kinda
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Sorta
